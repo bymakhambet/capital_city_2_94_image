@@ -1,0 +1,2 @@
+# capital_city_2_94_image
+capital_city_2_94_image
